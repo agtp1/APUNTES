@@ -1,6 +1,6 @@
 # APUNTES 
 🚀 Repositorio de Apuntes y Proyectos Personales 📚
- DESCARGA APUNTES: https://mega.nz/file/UNplFagS#BTe6foujc9-ptIcjyeD6LlS6hsPdWbNe164lU38P8C8
+ DESCARGA APUNTES: https://mega.nz/file/MIBCxDCY#B6e8IuwURX-K21ZrCGyVD9v2Ds_VQAcFlUx44gA8XsE
  
 ¡Bienvenido a mi rincón de conocimiento y creatividad! Este repositorio es mi espacio personal donde registro mis apuntes mientras estudio y desarrollo proyectos fascinantes.
 
